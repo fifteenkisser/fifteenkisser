@@ -1,6 +1,6 @@
 ![alt text](https://media1.tenor.com/m/ghhg2Pta1Y0AAAAC/ao-lie-lego-monkie-kid.gif "Ao Lie...")
 
-**Hello! I'm Geno, They/he, 17 y/o.**
+**Hello! I'm Avery, They/he, 18 y/o.**
 
 AROACE , NO GENDER . AUDHD, ANXIETY .
 
