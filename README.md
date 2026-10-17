@@ -7,7 +7,7 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 
 **DNI; proship. Basics, racists, ableists, etc.**
 
-**[P!, LMK , OSC , UTMV , CRK/CROB fan.]**
+**[P!, LMK , OSC , UTMV , CRK/CROB, SONIC fan.]**
 
 **[FAVES]**
 - Ao Lie (LMK)
@@ -16,6 +16,8 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 - Burning Spice (CRK)
 - Pitaya Dragon (CRK/OB)
 - Cross sans (UTAU)
+- Katana (P!)
+- Mimic the Octopus (SNK)
 
 **[SHIPS]**
 - PayJay
@@ -30,6 +32,7 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 - Michael (LOTS*)
 - Hyperlaser (P!)
 - Cross sans (UTMV)
+- Metal Sonic (SNK)
 I am awkward around twinkins ; But you can still interact !!
 
 ![alt text](https://media1.tenor.com/m/HufcmRVkbf0AAAAd/ao-lie-lego-monkie-kid.gif "I LOVE AO LIE!!")
