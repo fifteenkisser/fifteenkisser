@@ -7,7 +7,7 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 
 **DNI; proship. Basics, racists, ableists, etc.**
 
-**[LMK , OSC , UTAU , CRK/CROB fan.]**
+**[P!, LMK , OSC , UTMV , CRK/CROB fan.]**
 
 **[FAVES]**
 - Ao Lie (LMK)
@@ -21,12 +21,15 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 - PayJay
 - ZroTeen
 - Hollytaya
+- Hypertana
 
 **[KINS]**
 - Sun Wukong , MK , Ne Zha (LMK)
-- Zro , BFDI (BFDI)
-- MePad (II)
+- Zro , Black Hole (BFDI)
+- MePad , Knife (II)
 - Michael (LOTS*)
-I am awkward around doubles ; But you can still interact !!
+- Hyperlaser (P!)
+- Cross sans (UTMV)
+I am awkward around twinkins ; But you can still interact !!
 
 ![alt text](https://media1.tenor.com/m/HufcmRVkbf0AAAAd/ao-lie-lego-monkie-kid.gif "I LOVE AO LIE!!")
